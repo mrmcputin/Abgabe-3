@@ -1,1 +1,1 @@
-# Abgabe-3
+Abgabe von Aufgabe 3 Lennart Brinkmann
